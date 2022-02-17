@@ -1,1 +1,1 @@
-Chapter 1 - Red
+Chapter 1 - Purple
